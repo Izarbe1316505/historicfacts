@@ -1,1 +1,1 @@
-The Russian Revolution in 1917 led to the overthrow of the Tsarist autocracy and the establishment of the Soviet Union.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
