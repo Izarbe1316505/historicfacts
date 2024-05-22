@@ -1,1 +1,1 @@
-Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
+The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
