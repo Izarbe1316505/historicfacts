@@ -1,1 +1,1 @@
-The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
+The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
