@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+The Berlin Wall, symbolizing the division between East and West during the Cold War, was erected in 1961 and fell in 1989.
