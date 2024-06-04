@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
