@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
