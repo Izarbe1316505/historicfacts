@@ -1,1 +1,1 @@
-The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
