@@ -1,1 +1,1 @@
-The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
+The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
