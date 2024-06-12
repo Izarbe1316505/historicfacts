@@ -1,1 +1,1 @@
-The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
+Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
