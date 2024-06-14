@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
