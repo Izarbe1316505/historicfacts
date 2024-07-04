@@ -1,1 +1,1 @@
-Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
+Michelangelo completed the ceiling of the Sistine Chapel in 1512.
