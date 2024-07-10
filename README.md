@@ -1,1 +1,1 @@
-The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
+The Great Pyramid of Giza was built around 2560 BC.
