@@ -1,1 +1,1 @@
-The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
+The Zimmermann Telegram, intercepted by British intelligence in 1917, played a crucial role in the United States' decision to enter World War I.
