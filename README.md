@@ -1,1 +1,1 @@
-The Hundred Years' War between England and France lasted from 1337 to 1453.
+The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
