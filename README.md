@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
